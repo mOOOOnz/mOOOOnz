@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mOOOOnz
+- 👀 I’m interested in learning more about video games.
+- 🌱 I’m currently learning about Github!
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me \🤢
